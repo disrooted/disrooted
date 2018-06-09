@@ -1,2 +1,2 @@
 # disrooted
-New Project coming soon.
+Credit - @disrooted
